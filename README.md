@@ -1,1 +1,3 @@
-# 2026-09-KIT-COC-SC-307
+Title: Intergenerational Transmission of Traditional Music in the Digital Age and Its Implications for Cultural Continuity
+
+Domain: SPSS AND Smartpls ,Cultural Continuity
